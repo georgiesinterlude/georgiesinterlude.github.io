@@ -4,7 +4,7 @@ title: The Job Market
 subtitle: Just a Game to be Played
 ---
 
-You're probably reading this because you can't get that silly interview for that internship or entry level position. You probably spent a couple hours curating your resume to fit the needs of your desired firms and hearing nothing back from them. Well, I will tell you this right now, do not be discouraged. I'm not saying this to necessarily make you feel better. I am saying more as a slap in the face, because you genuinely can not afford to be discouraged. The more discouraged you are, the further you can fall behind. 
+You're probably reading this because you can't get that silly interview for that internship or entry level position. You probably spent a couple hours curating your resume to fit the needs of your desired firms and hearing nothing back from them. Well, I will tell you this right now, do not be discouraged. I'm not saying this to necessarily make you feel better. I am saying it as more of a slap in the face, because you genuinely can not afford to be discouraged. The more discouraged you are, the further you can fall behind. 
 
 However, on a softer note, just remember it is not your fault. The oversaturated job market is to blame. 
 
