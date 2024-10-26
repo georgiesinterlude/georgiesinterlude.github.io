@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The Job Market
+title:The Job Market
 subtitle: Just a Game to be Played
 ---
 
