@@ -8,7 +8,7 @@ You're probably reading this because you can't get that silly interview for that
 
 However, on a softer note, just remember it is not your fault. The oversaturated job market is to blame. 
 
-For starters... breathe...Yes...Seriously. Just breathe. All will work out in the end. You will find your job. You will find your path. Once you do, that will most likely be for your whole life. So enjoy the journey. Enjoy the process. Romanticize it a bit. While I know and fully undertstand it is a stressful time, it is also quite an exciting time. New opportunities. New opening doors. You're young (or so I assume). The world is your oyster. Remember that. 
+For starters... breathe...Yes. Seriously...Just breathe. All will work out in the end. You will find your job. You will find your path. Once you do, that will most likely be for your whole life. So enjoy the journey. Enjoy the process. Romanticize it a bit. While I know and fully undertstand it is a stressful time, it is also quite an exciting time. New opportunities. New opening doors. You're young (or so I assume). The world is your oyster. Remember that. 
 
 Now let me let you in on my experience with this job market. For introductions, I am an accounting major. I transferred from a community college to a four year university, and let me just tell you... the jump was insane. In community, all I ever focused on was school. Obtaining the grades, the units, the classes, simply in order for me to transfer. No clubs were joined. No internships were applied to. Just head down, doing what needed to get done.
 
